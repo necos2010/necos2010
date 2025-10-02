@@ -1,6 +1,8 @@
 # 💫 About Me:
 🔭 I’m currently working on NAPA AUTOMATIVE👯
 Front-End Developer
+TG: @zmirumar
+INST: zmirumar
 
 
 
